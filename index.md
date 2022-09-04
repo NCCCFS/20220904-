@@ -1,1 +1,34 @@
-
+# 20220904主日信息
+# 题目：建造工程
+# 经文：哥林多前书3:1-23
+# 讲员：王姊妹
+<audio controls src="./建造工程.mp3"></audio>
+![image](https://user-images.githubusercontent.com/91267933/188297032-938b99e2-5994-4616-9d6c-ea7c3219cd54.png)
+![image](https://user-images.githubusercontent.com/91267933/188297035-8128512a-62a5-4bbe-aa3f-8d9d1e2f881b.png)
+![image](https://user-images.githubusercontent.com/91267933/188297039-2ed3a94e-59bc-485a-ad43-7241b10c838d.png)
+![image](https://user-images.githubusercontent.com/91267933/188297045-58596b10-8b18-4ee8-aa1d-7b3874ac14a4.png)
+![image](https://user-images.githubusercontent.com/91267933/188297047-ed473fbb-a71e-454d-92c9-87d0c2e232f9.png)
+![image](https://user-images.githubusercontent.com/91267933/188297052-f6b0f6f6-b56e-4e4b-8481-600dc356ea3a.png)
+![image](https://user-images.githubusercontent.com/91267933/188297057-1ad34ffc-6ee3-41fa-acdc-56b7f0819d01.png)
+![image](https://user-images.githubusercontent.com/91267933/188297061-e83a9fc4-ecad-4bd5-ba07-8e80ccab000e.png)
+![image](https://user-images.githubusercontent.com/91267933/188297068-c1933eb3-633a-4dfc-aabe-24e6a05da11d.png)
+![image](https://user-images.githubusercontent.com/91267933/188297088-4b6be31b-5e53-4375-b2c9-d7d0c904009d.png)
+![image](https://user-images.githubusercontent.com/91267933/188297093-31a2ad8f-50fc-473a-b15a-f4fa9c9d5c66.png)
+![image](https://user-images.githubusercontent.com/91267933/188297095-dc1efc93-d1cf-41a5-aecf-fde6cdc8c896.png)
+![image](https://user-images.githubusercontent.com/91267933/188297098-9407c919-aeb9-44ee-94c0-f92f4bd359c1.png)
+![image](https://user-images.githubusercontent.com/91267933/188297100-68f7e19f-2a49-4408-b7d9-ca5e3182938e.png)
+![image](https://user-images.githubusercontent.com/91267933/188297103-533b9a37-82a1-413b-b8d7-c5db8e0c82fb.png)
+![image](https://user-images.githubusercontent.com/91267933/188297106-51f65df8-21cb-4eed-a9e7-e053f2716514.png)
+![image](https://user-images.githubusercontent.com/91267933/188297109-1199de99-5e87-4092-9d37-e8027872a3dc.png)
+![image](https://user-images.githubusercontent.com/91267933/188297115-d415b8f9-202f-4d09-b27b-82544c78ac50.png)
+![image](https://user-images.githubusercontent.com/91267933/188297121-7b743d37-4a0f-4942-8902-e456cf5bb752.png)
+![image](https://user-images.githubusercontent.com/91267933/188297129-d41ddf4e-459c-4852-ab6e-78b40729ab61.png)
+![image](https://user-images.githubusercontent.com/91267933/188297137-f8d43958-babc-4300-a21f-b9f307d9f3f9.png)
+![image](https://user-images.githubusercontent.com/91267933/188297144-ea6589c5-e564-40b3-a23c-a513e1931e28.png)
+![image](https://user-images.githubusercontent.com/91267933/188297150-5b8083a1-7fe6-4e9d-b134-2cefafab33b3.png)
+![image](https://user-images.githubusercontent.com/91267933/188297157-eb325a77-d86b-4270-8498-1d28835e46ce.png)
+![image](https://user-images.githubusercontent.com/91267933/188297159-45ba892a-85dd-466f-aab6-325ec6226381.png)
+![image](https://user-images.githubusercontent.com/91267933/188297168-653c5a67-beea-44ec-826f-0307db220461.png)
+![image](https://user-images.githubusercontent.com/91267933/188297172-42ca45e4-8d19-4364-b711-cd2275da77c8.png)
+![image](https://user-images.githubusercontent.com/91267933/188297173-d859c7e3-db12-4ab0-a91f-b2e82412d145.png)
+![image](https://user-images.githubusercontent.com/91267933/188297178-cce6878d-a9a4-4736-bd06-c259ba55f52a.png)
